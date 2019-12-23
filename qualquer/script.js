@@ -1,3 +1,1 @@
 sfsdgsgtfhdfutfdu
-
-SCRIPT PARA A FINCIONALIDADE X
